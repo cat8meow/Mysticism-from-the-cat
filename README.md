@@ -1,2 +1,3 @@
 # Mysticism-from-the-cat
 Meow to the stars
+Meow, the Star Cat greets you, wanderer in the Universe. Today I'm admiring the dawn... Oh, the face of the Sun emerges from its burrow like a mouse, spreading its colors. Hmm, the sunbeam resembles a sacred symbol-my eyes are like projectors. I'm chasing the sunbeam through the treehouse, trying to capture it with my soft paw. I think I've cornered it in a dark closet, where it shines and winks at me. I wanted to say...Yes, I wanted to. Moo... a sausage with hot coffee. Oh yes, the sun is a hologram and the sky is like a texture, with glitter sprinkled on my fur. I'm happy. POSTSCRIPT: I love the universe, which means, moo, that the universe loves me! Sudo is me, moo, so who are you?
